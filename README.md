@@ -1,0 +1,2 @@
+# ideas
+collections of ideas
